@@ -1,4 +1,4 @@
-### :octocat: You shall pass! :mage:
+### :octocat: You shall pass! :mage_man:
 
 ##
 
